@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=ranujet)
+![](https://komarev.com/ghpvc/?username=ranujet&color=a73bd2)
 
 <p align="right">
   $\color{#A73BD2}{\text{" a loser, that's all i'll ever be. "}}$
