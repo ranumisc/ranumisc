@@ -43,4 +43,8 @@ yeah a lot of these i just come back to.. in summary i'm a stupid teenager who l
   **DISCORD** *@ranujet* literally just my main usertag. i'm sort of inactive online anyways but this is your best bet to contact me :')
 </details>
 
+![DITF CREDIT](https://files.catbox.moe/76tvc4.png)
+
+<p align="right">
 $\color{#A73BD2}{\text{" and yet you still see me as a winner. "}}$
+</p>
