@@ -16,13 +16,14 @@
 
 **BYF/I**
 <p align="center">
-  i am a typically shy individual and may come off as distant. it's truly not personal, and i deeply apologize if i come off as rude.
+  i am a typically shy individual and may come off as distant but i wouldn't say i'm antisocial. maybe i don't know 😭 -- i don't really have a lot of friends as of now, so don't be scared to talk /w me!
 </p>
 
 **IWC + DNI**
 <p align="center">
   the following fandoms, <sub>Dandy's World, Forsaken, and Regretevator</sub> please IWC.
   people who are apart of fandoms/support games with controversial creators- DNI. <sub>e.g. YanSim, CoF + AoM, etc.</sub>
+  other than that, basic dni criteria.
 </details>
 
 <details>
