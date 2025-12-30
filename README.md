@@ -7,8 +7,7 @@
 ![DITF CREDIT](https://files.catbox.moe/u09lng.png)
 
 <p align="center">
-<sub>hi, i'm</sub> rance, <sub>but feel free to call me whatever, idrc ^^</sub>
-  <sub>i identify as</sub> she/her, but they/them is fine too. please don't use masc terms on me!</sub>
+**rance** / *ranu* / ranch | 6teen |she**her**
 </p>
 
 also the following stuff is like HELLA yap
