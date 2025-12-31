@@ -44,7 +44,10 @@ if u like any of these chances are i'll get excited if u int.. ACTUALLY WHATEVER
   <summary>focused abt me</summary>
   
   hi i'm rance, use **she**her pronouns primarily / rarely use *they*. please avoid using masc terms for me.
+
   i'm **16**, so please (try) to refrain from nsfw stuff if u int. also speaking of this i'm ace :).
+
+  besides me being an anxious abomination of panic, there isn't really any need to walk on eggshells around me. unless you're in the iwc list. i'm not *the type to get offended/upset* at lot, and don't really care about anything (in terms of affecting me).
 </details>
 
 <details>
