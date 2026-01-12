@@ -1,6 +1,10 @@
 ![](https://komarev.com/ghpvc/?username=ranujet&color=a73bd2&label=buddies&style=plastic)
 
-im awrsome ok? this is a big wip
+<p align="center">
+
+  ![SHINJI](https://files.catbox.moe/cuqq4n.png)
+  
+</p>
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
