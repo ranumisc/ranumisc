@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=ranujet&color=a73bd2&label=buddies&style=plastic)
+![](https://komarev.com/ghpvc/?username=ranujet&color=black&label=angels&style=plastic)
 
 <p align="center">
 
