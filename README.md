@@ -6,6 +6,11 @@
 
 </div>
 
+<p align="center">
+
+read [rentry](https://rentry.co/fraudulentangel)
+
+sign [atabook](https://vermillion.atabook.org/)
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
