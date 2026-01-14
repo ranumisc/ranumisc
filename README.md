@@ -1,7 +1,8 @@
 ![](https://komarev.com/ghpvc/?username=ranumisc&color=000000&label=angels&style=plastic)
 
-  ![SHINJI](https://files.catbox.moe/cuqq4n.png)
-
+<p align="center">
+  <img src="[https://files.catbox.moe/cuqq4n.png]">
+</p>
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
